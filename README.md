@@ -1,0 +1,1 @@
+# Projeto-de-Gest-o-de-Residuos-Solidos
